@@ -1,8 +1,8 @@
 
        𝑇𝛩𝑋𝐼𝐶么𝐿𝛯𝛩
        
-
-
+    
+https://i.imgur.com/WeXayia.jpeg
 
 
 
