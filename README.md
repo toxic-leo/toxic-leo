@@ -12,7 +12,7 @@
 <p align="center">
  <a href="https://github.com/toxic-leo"><img title="Author" src="https://img.shields.io/badge/OWNER-h?color=black&style=for-the-badge&logo=github"></a>  <a href="https://Wa.me/+919497206865?text=Hello Akash Bro🌝.Big fan😌💝"><img title="Author" src="https://img.shields.io/badge/Author Akash Sir-h?color=black&style=for-the-badge&logo=whatsapp"></a>
 <p align="center">
-<a href="https://chat.whatsapp.com/FCwVcEZvwWLCcO0h1P2IBG"><img title="Author" src="https://img.shields.io/badge/WHATSAPP GROUP-h?color=black&style=for-the-badge&logo=whatsapp"></a>    <a href="https:https://youtu.be/eZ3xhIWnuyY"><img title="Author" src="https://img.shields.io/badge/YT PEPE SIR-h?color=black&style=for-the-badge&logo=youtube"></a>
+<a href="https://chat.whatsapp.com/FCwVcEZvwWLCcO0h1P2IBG"><img title="Author" src="https://img.shields.io/badge/WHATSAPP GROUP-h?color=black&style=for-the-badge&logo=whatsapp"></a>    <a href="https:https://youtu.be/eZ3xhIWnuyY"><img title="Author" src="https://img.shields.io/badge/TOXIC LEO-h?color=black&style=for-the-badge&logo=youtube"></a>
 </p>
 
 
