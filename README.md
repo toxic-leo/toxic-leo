@@ -3,7 +3,7 @@
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/akash_ak_4) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/c/https://youtube.com/channel/UCNAXcvRkE73MkHNC0RH1_5Q) 
 
-# 𝚃𝙾𝚇𝙸𝙲 LEO💫:
+# ᴛᴏxɪᴄ ʟᴇᴏ💫:
 ![JavaScript](https://img.shields.io/badge/javascript-%23323330.svg?style=for-the-badge&logo=javascript&logoColor=%23F7DF1E) ![Heroku](https://img.shields.io/badge/heroku-%23430098.svg?style=for-the-badge&logo=heroku&logoColor=white)
 # 📊 GitHub Stats:
 ![](https://github-readme-stats.vercel.app/api?username=toxic-leo&theme=radical&hide_border=false&include_all_commits=true&count_private=true)<br/>
