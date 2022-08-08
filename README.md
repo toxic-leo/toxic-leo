@@ -1,10 +1,7 @@
-- 👋 Hi, I’m @toxic-leo
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+𝐈𝐭'𝐬 𝐌𝐞 𝐓𝐨𝐱𝐢𝐜 𝐋𝐞𝐨👻  
 
-<!---
-toxic-leo/toxic-leo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+𝐎𝐰𝐧𝐞𝐫; 𝐀𝐤𝐚𝐬𝐡 𝐋𝐞𝐨
+
+𝐈𝐧𝐬𝐭𝐚:https://instagram.com/akash_ak_4?igshid=YmMyMTA2M2Y=
+𝐂𝐨𝐧𝐭𝐚𝐜𝐭:
+
