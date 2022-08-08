@@ -1,3 +1,13 @@
+
+       𝑇𝛩𝑋𝐼𝐶么𝐿𝛯𝛩
+       
+
+
+
+
+
+
+
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/akash_ak_4) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/c/https://youtube.com/channel/UCNAXcvRkE73MkHNC0RH1_5Q) 
 
